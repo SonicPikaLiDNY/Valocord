@@ -1,3 +1,7 @@
+# This gift is ending soon anyway, so i think its about time to archive this, this may work for new gifts, so if a new valorant gift happens im unarchiving this
+
+Anyways, old Readme here:
+
 # This probably won't get updates (unless it gets patched)
 
 i made this as a joke, so i dont really think someone will use this
